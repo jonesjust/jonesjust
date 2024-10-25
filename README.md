@@ -1,1 +1,1 @@
-Turning raw data into valuable insights 🚀 
+Turning data into valuable insights 🚀
